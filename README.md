@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **yasiruruwantha2004@gmail.com**
 
-- ⚡ Fun fact **you can bet 1000$ on me for laughing in a serious situation 💀**
+- ⚡ Fun fact **I'm actually funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
